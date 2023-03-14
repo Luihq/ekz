@@ -1,3 +1,3 @@
 # ekz
 
-i love ☕
+i love ☕ and 💻
